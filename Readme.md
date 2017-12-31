@@ -8,5 +8,5 @@ Cheers!
 
 
 
-[Akash Trehan](akashtrehan.com)
+[Akash Trehan](http://www.akashtrehan.com)
 
